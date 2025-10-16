@@ -1,4 +1,4 @@
 # My-First-Repository-
 This is my first repository😊😊
 
-KG **_K_t_l__e G_n_d_y_**
+KG **_K_t_l__e G_nd_y_**
